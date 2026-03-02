@@ -1,2 +1,2 @@
 # Projects
-O ti fai c*lo o te ne vai a fanc*lo
+O ti fai il cvlo o te ne vai a fancvlo
